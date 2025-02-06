@@ -6,3 +6,4 @@
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: i'm the goat
 - 💻 https://phelipequintes.vercel.app/index.html 
+- LinkedIN: https://www.linkedin.com/in/phelipe-quintes-96a300187/
